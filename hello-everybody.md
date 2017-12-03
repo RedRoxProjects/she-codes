@@ -1,6 +1,10 @@
 # Hello Everybody!! 
 
+My name is Amy, my handle is @RedRoxProjects, my favourite emoji :sparkles:, I can and can't live with cats :octocat:
+
 # Introduce Yourself:
+
+* Bonnie, @samuyiwabr :star:
 
 * My name is Laura, my handle is @lauralyh
 
