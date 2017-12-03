@@ -2,12 +2,16 @@
 
 My name is Amy, my handle is @RedRoxProjects, my favourite emoji :sparkles:, I can and can't live with cats :octocat:
 
-Sarah (@spoulten) here! :whale2:
+# Introduce Yourself:
 
-Allysia :heart:
+* Sarah (@spoulten) here! :whale2:
 
-Annika, @annikalle :snowflake:
+* Allysia :heart:
 
-:star: Sarah = sarahmonty :star:
+* Annika, @annikalle :snowflake:
 
-Tomi, @tomiolopade :rocket:
+* My name is Carly, my handle is @carlysinicrope, my favourite emoji is :unicorn: and I love pasta xo
+
+* :star: Sarah = sarahmonty :star:
+
+* Tomi, @tomiolopade :rocket:
