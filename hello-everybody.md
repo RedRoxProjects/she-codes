@@ -1,8 +1,8 @@
 # Hello Everybody!! 
 
-My name is Amy, my handle is @RedRoxProjects, my favourite emoji :sparkles:, I can and can't live with cats :octocat:<br />
-
 # Introduce Yourself:
+
+* My name is Laura, my handle is @lauralyh
 
 * Hello my name is Serena and my username is shathi123 :sparkles:
 
