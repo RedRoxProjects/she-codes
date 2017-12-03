@@ -4,6 +4,8 @@ My name is Amy, my handle is @RedRoxProjects, my favourite emoji :sparkles:, I c
 
 # Introduce Yourself:
 
+* Hi, I'm Saga @sagaellie
+
 * Hello my name is charlotte and this music is pumping :sound:
 
 * Bonnie, @samuyiwabr :star:
